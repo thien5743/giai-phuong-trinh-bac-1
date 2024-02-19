@@ -1,0 +1,1 @@
+# giai phuong trinh bac 1
